@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @R1zzler
+- 👀 I’m interested in all things tech
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on various IT realted projects
+- 📫 How to reach me ...
